@@ -172,7 +172,7 @@ The first sibling presupposed that it could go both ways. But my sister isn't th
 
 I should note that if you are learning dating on sites like Youtube, you probably shouldn't go for pickup artist channels. They may feed you some truths to get you in the door, and then keep you stuck with misogynistic beliefs in order to bring you into a sales funnel. They are an industry that preys upon the vulnerable.
 
-A more positive community would be better. For this I would recommend Dr. K's channel, aka HealthyGamerGG. According to his video "Talking with an Incel about Starting a Relationship" the main turnoff for women is a man who is "burdened."[^8]
+A more positive community would be better. For this I would recommend Dr. K's channel, aka HealthyGamerGG. According to his video "Talking with an Incel about Starting a Relationship" the main turnoff for women is a man who is "burdened."[^8] Asking someone out is seen as the modus operandi for getting a girlfriend.[^14] Interestingly enough, Dr. K also uses job applications as an analogy for dating. I will cover this analogy more in-depth later.
 
 In munecat's video, "Diving Down the Sales Funnel of a TikTok Pick-Up Artist," she states: "I think society leads a lot of women to think that society to think that they don't need to approach guys ever . . . they just sort of expect guys to approach them. But girls, I think we sort of need to get out of that headspace a little bit . . . I was certainly guilty of it when I was single I think. If you're single and you like a guy, and it's safe, approach him."[^9]
 
@@ -287,3 +287,4 @@ Dating is a tough world to navigate, and this really throws a monkey wrench in o
 [^11]: https://youtu.be/be_Ms3nVG10?t=267
 [^12]: https://youtu.be/be_Ms3nVG10?t=3236
 [^13]: https://youtu.be/be_Ms3nVG10?t=3618
+[^14]: https://youtu.be/5QdPcuH3FjA?t=574
